@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Selenasean, but you can call me Sel (like salt in french)
-- 👀 I’m interested in coding (of course), the Nature, and so many funny things like Bolognese Ragu's recipe
+- 👀 I’m interested in coding, the Nature, and so many funny things like Bolognese Ragu's recipe
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on projects~
 - 📫 How to reach me : send a carrier pigeon, or email me on selena.sean.1994@gmail.com
